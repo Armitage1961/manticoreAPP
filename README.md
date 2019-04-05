@@ -1,2 +1,2 @@
 # manticoreAPP
-new in town
+I am first child and lost in space
